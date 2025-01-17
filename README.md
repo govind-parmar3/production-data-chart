@@ -1,5 +1,12 @@
 # production-data-chart
 
+MO : +919265662388
+Email : gp863067@gmail.com
+GitHub : https://github.com/govind-parmar3
+LinkedIn https://www.linkedin.com/in/govind-parmar-1a5ba02a3/
+
+
+
 
 
 ![Screenshot (82)](https://github.com/user-attachments/assets/d1e2734b-9cbb-4bfd-9891-2bc817b45bb2)
