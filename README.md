@@ -2,7 +2,6 @@
 
 MO : +919265662388
 Email : gp863067@gmail.com
-GitHub : https://github.com/govind-parmar3
 LinkedIn https://www.linkedin.com/in/govind-parmar-1a5ba02a3/
 
 
